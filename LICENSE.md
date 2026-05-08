@@ -1,4 +1,4 @@
-
+ClickUp for macOS ultimate Plugin - export to PDF and custom shortcuts offers the most advanced ClickUp for macOS plugin, with export to PDF and custom shortcuts. Ideal for
 
 
 
